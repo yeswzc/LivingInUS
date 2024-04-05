@@ -19,6 +19,10 @@ Silver Dinner/First Watch.
 
 True Food Kitchen. Have good latte too
 
+#### 1.3 Chinese
+Not as good as homemade.
+
+
 ##   ##
 ## 2 Hiking, Camping and others nearby
 
