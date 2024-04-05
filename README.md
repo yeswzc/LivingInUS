@@ -1,4 +1,4 @@
-# Usefull tips for me LivingInUS (may apply to other postdocs in NIH)
+# Usefull tips for me LivingInUS (may apply to other postdocs at the NIH)
 
 ## 1 Tax
 联邦税 https://www.irs.gov/filing/free-file-do-your-federal-taxes-for-free (only for resident alian 1040, 1040NR is not available 2024 yet.)
