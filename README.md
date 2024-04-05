@@ -11,13 +11,29 @@ Here is a summarized [NIH- j1不持异议信豁免过程.pptx](https://github.co
 
 
 
-## 3 EB-1A
 
-## 4 Nice food
+
+## 3 Nice food
 ##### 4.1 Korean food
-Yechon (VA)
-#### 4.2 
+Yechon, Tosokchon (Annandale, VA)
 
+##### 3.2 Uyghur
+Eerkins Uyghur Cuisine (Rockville, MD)
 
-## 5 Hiking
+##### 3.2 French, Amerian
+Julii (Rockville)
 
+Silver Dinner
+
+First Watch
+
+True Food Kitchen
+
+## 4 Hiking and others nearby
+Billy goat trail (no pass is required)
+
+Brookside garden
+
+Cherry Blossom (usally mid-March) at Kenwood community
+
+## 
