@@ -9,6 +9,11 @@
 ##### 1.1 Korean food
 Yechon, Tosokchon (Annandale, VA)
 
+#### 1.2 Vietnam/Thai 
+Pho Viet USA (Bethesda)
+
+Thai Chef Rockville
+
 ##### 1.2 Uyghur
 Eerkins Uyghur Cuisine (Rockville, MD)
 
@@ -57,7 +62,7 @@ Here is a summarized [NIH- j1不持异议信豁免过程.pptx](https://github.co
 
 ##   ##
 ## 5 海外优青
-My first try was during 2021-2022 when I thought it is a easy step. I thought it would be inteviews like other jobs, but it turnes out like a grant. I have friends that planed more than a year with their advisor's helping them. But I can't find help now, so I give up. And I don't plan to go back home country in near future.
+My first try was during 2021-2022 when I thought it a easy step. I thought it would be inteviews like other jobs, but it turneed out like a grant application. I have friends that planed more than a year with their advisor's helping them. But I can't find help and my own research is like 打野, so I give up. I say 打野 because one of my PhD advisor once said about his own research is ok but his 在外面打野 made bigger paper like Cell and Nature. I don't plan to go back home country in near future. So I give up.
 
 
 The best chance is that: you have >= 3 10+ IF(impact factor) papers, or one CNS paper + one 10+ IF paper. Your studies have focused in one main scientic area, novelty and has potential benifit in public health or business gains. You also need to propose your new research idea.
