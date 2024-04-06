@@ -48,7 +48,7 @@ Assateague Island(haven't tried yet, but watch out mosquito!)
 联邦税 https://www.irs.gov/filing/free-file-do-your-federal-taxes-for-free (only for resident alian 1040, 1040NR is not available 2024 yet.)
 
 MD州税 https://interactive.marylandtaxes.gov/Individuals/iFile_ChooseForm/default.asp
-  For J-1 newbies: you may want to schedule pay MD tax estimate seasonally in the tax year before tax season to avoid late pay interest. (most people don't know before they start pay)
+  For J-1 newbies: you may want to schedule pay MD tax estimate seasonally in the tax year before tax season to avoid late pay interest. (Most people don't know before they were asked to pay interest. Especially those who file non-electronicly which they don't even know there is late pay interest not even to say how much of interest should be paid. This happened to me in the first year.)
 
 ##   ##
 ## 4 J-1 Waiver
