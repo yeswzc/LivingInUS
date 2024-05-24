@@ -12,7 +12,7 @@ Yechon, Tosokchon (Annandale, VA)
 #### 1.2 Vietnam/Thai 
 Pho Viet USA (Bethesda)
 
-Thai Chef Rockville
+Thai Chef Rockville (not interested anymore now)
 
 ##### 1.2 Uyghur
 Eerkins Uyghur Cuisine (Rockville, MD)
@@ -27,6 +27,8 @@ True Food Kitchen. Have good latte too
 #### 1.3 Chinese
 Not as good as homemade.
 
+#### 1.4 Japanese
+Ramen: Hokkaido, Hanabi Ramen,
 
 ##   ##
 ## 2 Hiking, Camping and others nearby
